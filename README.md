@@ -1,2 +1,0 @@
-# alextuchkov.github.io
-Tuchkov 
